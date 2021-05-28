@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @game-stakes
+- 👀 We sell diamonds in Free Fire. Sometime we organise tournament also.
